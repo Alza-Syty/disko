@@ -1,0 +1,2 @@
+# disko
+Dilko nou YAr
